@@ -1,0 +1,1 @@
+# IEEEVerilogHDLyuyanbiaozhun1364-2005ziyuanxiazai
